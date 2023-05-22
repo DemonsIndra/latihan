@@ -1,3 +1,3 @@
 // botak
-//botak kontol
+// Botak mesum
 //lo asik bang
